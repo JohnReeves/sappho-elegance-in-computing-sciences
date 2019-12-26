@@ -30,4 +30,16 @@ After my dissatisfaction with Dewey (mansplaining, manwashing, liberal elitism)
 * foreground yourself . 
 * critical review of the literature .  
 * pilot study / conext of women & children & academic research .  
+* build an academic relationship with the university .  
+
+# academic records
+
+* meeting agenda & notes .  
+* progress reports .  
+* academic writing for review .  
+* blog journalling for public consumption .  
+* record keeping for portfolio management .  
+
+
+
 
