@@ -12,9 +12,22 @@ a fractured lens;
 (to compare to the network of roots, and   
  to the fractured container)
 
-not a capitalist business plan; or   
+not a capitalist business plan; and   
 not a technical report; 
 nor yet a balanced argument of plausibility .  
+
+hostility in engineering: everybody is suffering (blacks, whites, women);   
+social justice in engineering: thw wildwest mentality (ibm, google, elon musk);   
+trade warfare in engineering: destruction of industruction of industries (tsr2, radar, education, government);   
+best practice in engineering: asset stripping land, products and people;   
+
+the absolute numbers not the ratios;  
+building a community; and .  
+the daily fight for democracy.   
+not your job to teach me.   
+(except when it is)
+
+educationalists, sociologists & psychologist should hold us to account!
 
 - i am someone different for each person;   
 - i am overwhelmed in groups;   
