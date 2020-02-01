@@ -1,4 +1,26 @@
-foregrounding myself
+Foregrounding myself
+
+Obvious to me:   
+"John, you are remarkably niaive about people"
+emotions, behaviour & thoughts.
+
+What do I have to share?
+Variety needs variety & the shallow Q-curve!   
+My elephant in the room!
+
+a fractured lens;   
+(to compare to the network of roots, and   
+ to the fractured container)
+
+not a capitalist business plan; or   
+not a technical report; 
+nor yet a balanced argument of plausibility .  
+
+- i am someone different for each person;   
+- i am overwhelmed in groups;   
+- i am overwhelmed by strangers;  
+- i am underwhelmed by distance;   
+- i care deeply.
 
 * the Louis Armstrong science song for the kids;   
 * endure, sustain, love & thrive;   
@@ -8,7 +30,6 @@ foregrounding myself
 * educational philosophy is like the story mountain;   
 * tells the finished product and doesn't creativity.   
 
-
 The Art of Scientific Computing
 
 As so often happens when I come to an end of research:
@@ -17,29 +38,25 @@ could I have reached the same conclusion if I have just
 turned the other way!
 
 In this case, I have:
-learned a body of knowledge on classroom teaching;
-adjusted my thinking and behaviour in dealing with people;
-looked anew at the behaviour of technology companies and the state;
-but so what?
+learned a body of knowledge on classroom teaching;   
+adjusted my thinking and behaviour in dealing with people;   
+looked anew at the behaviour of technology companies and the state;   
+but so what?   
 
-I can't deny it has been hard work - overturning a lifetime of learning
-mathematics and physical sciences; overcoming neurological handicaps; 
-making up for atrophying skills; and dealing with other peoples lack of 
+I can't deny it has been hard work - 
+overturning a lifetime of learning mathematics and physical sciences; 
+overcoming neurological handicaps; 
+making up for atrophying skills; and 
+dealing with other peoples lack of 
 appreciation.
 
 What is there in all of that that warrents sharing with other people?
 
-Living educational theory asks for an improvement in my influence in 
-the groups I am part of.
+Living educational theory asks for an improvement in my influence in the groups I am part of.
 
-That seems like a very power oriented thinking tracing back through
-Dewey to Aristotle. However, Dewey is less than honest in his description
-of the myriad of women in his own development; and Aristotle's acceptance 
-of Sappho is lost to time.
+That seems like a very power oriented thinking tracing back through Dewey to Aristotle. However, Dewey is less than honest in his description of the myriad of women in his own development; and Aristotle's acceptance of Sappho is lost to time.
 
-You don't have to search very far to find Aristotle's description of 
-Sappho as the 10th muse, so accepted as part of the classical framework
-of knowledge that he goes no further.
+You don't have to search very far to find Aristotle's description of Sappho as the 10th muse, so accepted as part of the classical framework of knowledge that he goes no further.
 
 In our times that seems a filterning of knowledge worth sharing.
 
