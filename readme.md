@@ -1,4 +1,15 @@
-Foregrounding myself
+
+# Statistics on computing
+
+2016:   
+[skills shortage](https://www.bbc.co.uk/news/business-36510266)
+[GCSE computing bad for girls](https://www.bbc.co.uk/news/technology-38364076)
+
+2020:   
+[boys lag girls](https://www.bbc.co.uk/news/education-51313438)
+[autism and adhd neglected in schools](https://www.bbc.co.uk/news/uk-wales-51384024)
+
+# Foregrounding myself
 
 Obvious to me:   
 "John, you are remarkably niaive about people"
@@ -43,7 +54,7 @@ educationalists, sociologists & psychologist should hold us to account!
 * educational philosophy is like the story mountain;   
 * tells the finished product and doesn't creativity.   
 
-The Art of Scientific Computing
+# The Art of Scientific Computing
 
 As so often happens when I come to an end of research:
 I sit back and wonder - what's so special about that; 
